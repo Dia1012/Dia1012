@@ -1,7 +1,7 @@
 # 👋 Welcome to Dia1012's Github!
 
 ## ❗️ Introduce
->Live in Korea 🇰🇷
+>Live in South Korea 🇰🇷
 >
 >High School Student 🏫
 
